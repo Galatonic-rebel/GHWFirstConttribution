@@ -10,3 +10,6 @@ We are celebrating a week long hacker festival. Add your username here and make 
 - Akash3121
 - Sashrika Kaur
 - Blahaj
+- Puja Sri 
+
+# I have added my name to the list
